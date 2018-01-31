@@ -1,3 +1,3 @@
 # hello-world
 
-No world, you put YOUR ahnds up!
+No world, you put YOUR hands up!
